@@ -1,2 +1,2 @@
 # Clase 8
-creado desde 
+creado desde kraken 
